@@ -36,4 +36,5 @@ If you encounter any issues, open a GitHub issue or leave a comment on the relat
 
 🌐 Connect with Me
 
+[TheCloudlyNomad YT channel](https://www.youtube.com/@TheCloudlyNomad)
 
